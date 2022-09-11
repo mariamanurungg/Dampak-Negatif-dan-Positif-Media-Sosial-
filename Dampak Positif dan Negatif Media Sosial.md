@@ -31,6 +31,8 @@ Oleh karna itu, tidak perlu terlalu mengikuti perkembangan jaman, kita harus pan
 
 
 # **Dampak Negatif dan Positif Aplikasi Media Sosial Aplikasi TikTok**
+![tiktok-2](https://user-images.githubusercontent.com/112459285/189516750-b38dda98-28ca-4c28-a7a0-369b1c1b6635.jpg)
+
 dilansir dalam *https://www.kompasiana.com/fenyaprilia3947/5b4ee4306ddcae02aa20ad58/dampak-negatif-dan-positif-dari-fenomena-tik-tok-saat-ini-bagi-remaja* 
 
 Salah satunya dalam bidang teknologi komunikasi seperti adanya smartphone dan internet, membuat manusia semakin meningkatkan cara komunikasinya. Berbagai macam media untuk berkomunikasi pun hadir untuk memudahkan manusia berinteraksi. Seiring dengan perkembangan zaman, teknologi internet sudah menjadi kebutuhan bagi masyarakat, hal inilah yang melahirkan media sosial. Media sosial merupakan media online, yaitu media yang hanya ada dengan menggunakan internet dimana para penggunanya bisa menuangkan ide, mengekspresikan diri, dan menggunakan sesuai dengan kebutuhannya. Kehadiran media sosial memberikan kemudahan bagi manusia untuk berkomunikasi dan bersosialisasi.
